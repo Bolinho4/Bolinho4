@@ -1,4 +1,4 @@
-![](link)![Uploading ordem paranormal.gif…]()
+![]([Uploading ordem paranormal.gif…])
 
 
 
