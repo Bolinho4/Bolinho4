@@ -1,4 +1,5 @@
-![]([Uploading ordem paranormal.gif…])
+![](![ordem paranormal](https://github.com/Bolinho4/Bolinho4/assets/174050354/43bfc447-5d47-4d0d-82df-42920ae3fd21)
+)
 
 
 
