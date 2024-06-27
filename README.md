@@ -1,4 +1,4 @@
-![](link)https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.wattpad.com%2F1294505963-%25E2%25A0%2580%25E2%25A0%2580%25E2%25A0%2580%25E2%25A0%2580-%25E2%259D%25A8%25F0%259D%2592%25ABr%25CE%25BF%25CC%2581l%25CE%25BFg%25CE%25BF%25E2%259D%25A9-%25E2%25A8%25BE-conhecimento&psig=AOvVaw1z4MYZMeB3ITAP1O-4o2ah&ust=1719597450764000&source=images&cd=vfe&opi=89978449&ved=0CA4QjRxqFwoTCICPp_mt_IYDFQAAAAAdAAAAABAh
+
 
 <!--
 **Bolinho4/Bolinho4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
